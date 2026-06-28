@@ -1,4 +1,4 @@
-# 
+# حصرية IObit Uninstaller قوالب لـ Mac OS | مميز IObit Uninstaller قوالب لـ PC Windows. مع مزامنة الملفات و دعم سطر الأوامر — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
